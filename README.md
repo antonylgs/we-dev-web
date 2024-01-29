@@ -1,3 +1,3 @@
 ## We Dev Web
 
-**Online Website :** https://wedevweb.fr/
+**Online Website :** *currently unavailable*
